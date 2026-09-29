@@ -38,4 +38,4 @@ The entire stack spans **5 decoupled public repositories** comprising **214K+ li
 I handle my billing via direct, streamlined vendor invoicing (Wise/Payoneer), requiring **zero local payroll or cross-border employer overhead** on your end. 
 
 📧 **Email:** j2718wong@gmail.com  
-💼 **LinkedIn:** [://linkedin.com](https://www.://linkedin.com)
+💼 **LinkedIn:** [linkedin.com/in/jackwong888](https://www.linkedin.com/in/jackwong888/)
